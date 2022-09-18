@@ -1,1 +1,0 @@
-Batma es un Superheroe que vive en Gotham City, es el protector de la ciudad, Batman tiene una vida doble, por el día es Bruce Wayne un millonario playboy y por la noche es Batman el protector de Gotham City.
